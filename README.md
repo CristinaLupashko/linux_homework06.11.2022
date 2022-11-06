@@ -1,0 +1,1 @@
+# linux_homework06.11.2022
